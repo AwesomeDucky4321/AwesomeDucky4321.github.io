@@ -6,4 +6,4 @@ School and my surroundings shaped this decision, I always see daily struggles th
 
 Things that motivate me are having hope of making a change in my community.
 
-Some of my goals include being able to help people with daily needs.
+Some of my goals include being able to help people with daily needs and just become better at problem solving and innovation.
